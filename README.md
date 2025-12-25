@@ -1,5 +1,4 @@
-# SedapGroup
-
+# SEDAP168
 Website resmi SedapGroup yang menyajikan informasi seputar platform digital dan hiburan online.
 
 🔗 Website resmi:
