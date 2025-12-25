@@ -13,7 +13,7 @@ Website resmi platform hiburan digital yang menyajikan berbagai informasi online
 Website ini dibuat sebagai media referensi bagi pengguna yang ingin mengenal lebih jauh berbagai jenis layanan digital dan perkembangan dunia hiburan online.
 
 Untuk detail lebih lanjut, silakan kunjungi  
-👉 [Website resmi SEDAP168](https://sedapgroup.com)
+👉 [Kunjungi situs resmi kami](https://sedapgroup.com)
 
 ---
 
